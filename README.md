@@ -1,2 +1,2 @@
 # hello-world
-random idc 
+I am Mariah. I go to SGVT. I am in 11th grade.
